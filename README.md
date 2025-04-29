@@ -1,0 +1,1 @@
+# singapuram_portfolio
